@@ -6,3 +6,6 @@
 
 ![solicitacao_acesso](SolicitaAcessoProjeto.gif)
 
+# Criando branch a partir de uma issue no board
+
+![criando_branch](CriandoBranch.gif)
