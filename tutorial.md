@@ -9,3 +9,7 @@
 # Criando branch a partir de uma issue no board
 
 ![criando_branch](CriandoBranch.gif)
+
+# Commitando alterações
+
+![commitando](CommitaAlteracaox1_5..gif)
