@@ -83,3 +83,10 @@
 > Pra ajudar toda essa gente que só faz
 
 
+> Agora o Santo Cristo era bandido
+
+> Destemido e temido no Distrito Federal
+
+> Não tinha nenhum medo de polícia
+
+> Capitão ou traficante, playboy ou general
