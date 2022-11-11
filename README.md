@@ -36,3 +36,12 @@
 > Sentia que aquilo ali não era o seu lugar
 
 
+> E João não conseguiu o que queria
+
+> Quando veio pra Brasília, com o diabo ter
+
+> Ele queria era falar pro presidente
+
+> Pra ajudar toda essa gente que só faz
+
+
