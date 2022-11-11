@@ -43,3 +43,43 @@
 > Aos quinze, foi mandado pro o reformatório
 
 > Onde aumentou seu ódio diante de tanto terror
+
+
+> E lá chegando, foi tomar um cafezinho
+
+> E encontrou um boiadeiro, com quem foi falar
+
+> E o boiadeiro tinha uma passagem e ia perder a viagem
+
+> Mas João foi lhe salvar
+
+
+> Fez amigos, frequentava a Asa Norte
+
+> E ia pra festa de rock, pra se libertar
+
+> Mas de repente Sob uma má influência dos boyzinho da cidade
+
+> Começou a roubar
+
+
+> Ele dizia que queria se casar
+
+> E carpinteiro ele voltou a ser
+
+> Maria Lúcia pra sempre vou te amar
+
+> E um filho com você eu quero ter
+
+
+> Sentindo o sangue na garganta
+
+> João olhou pras bandeirinhas e pro povo a aplaudir
+
+> E olhou pro sorveteiro e pras câmeras e
+
+> A gente da TV que filmava tudo ali
+
+
+> Sofrer
+
