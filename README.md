@@ -74,6 +74,7 @@
 
 > Sofrer
 
+
 > E João não conseguiu o que queria
 
 > Quando veio pra Brasília, com o diabo ter
@@ -83,3 +84,10 @@
 > Pra ajudar toda essa gente que só faz
 
 
+> Dizia ele: Estou indo pra Brasília
+
+> Neste país lugar melhor não há
+
+> Tô precisando visitar a minha filha
+
+> Eu fico aqui e você vai no meu lugar
