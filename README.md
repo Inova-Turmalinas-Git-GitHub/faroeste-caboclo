@@ -83,3 +83,10 @@
 > Pra ajudar toda essa gente que só faz
 
 
+> "Você perdeu a sua vida meu irmão
+
+> Você perdeu a sua vida meu irmão
+
+> Essas palavras vão entrar no coração
+
+> Eu vou sofrer as consequências como um cão"
