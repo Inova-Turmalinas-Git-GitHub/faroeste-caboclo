@@ -17,3 +17,12 @@
 
 > E na escola até o professor com ele aprendeu
 
+
+> Ia pra igreja só prá roubar o dinheiro
+
+> Que as velhinhas colocavam na caixinha do altar.
+
+> Sentia mesmo que era mesmo diferente
+
+> Sentia que aquilo ali não era o seu lugar
+
