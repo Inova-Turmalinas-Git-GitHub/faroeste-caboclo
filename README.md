@@ -25,3 +25,4 @@
 > Juntou dinheiro para poder viajar
 
 > De escolha própria, escolheu a solidão
+
