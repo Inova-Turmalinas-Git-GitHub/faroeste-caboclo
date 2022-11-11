@@ -42,6 +42,8 @@
 
 > Aos quinze, foi mandado pro o reformatório
 
+> Onde aumentou seu ódio diante de tanto terror
+
 
 > Ele dizia que queria se casar
 
@@ -59,4 +61,7 @@
 > E olhou pro sorveteiro e pras câmeras e
 
 > A gente da TV que filmava tudo ali
+
+
+> Sofrer
 
