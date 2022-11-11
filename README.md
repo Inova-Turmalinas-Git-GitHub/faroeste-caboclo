@@ -83,3 +83,12 @@
 > Pra ajudar toda essa gente que só faz
 
 
+> E João aceitou sua proposta
+
+> E num ônibus entrou no Planalto Central
+
+> Ele ficou bestificado com a cidade
+
+> Saindo da rodoviária, viu as luzes de Natal
+
+
