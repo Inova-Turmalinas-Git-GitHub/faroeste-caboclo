@@ -45,6 +45,15 @@
 > Onde aumentou seu ódio diante de tanto terror
 
 
+> Na sexta-feira ia pra zona da cidade
+
+> Gastar todo o seu dinheiro de rapaz trabalhador
+
+> E conhecia muita gente interessante
+
+> Até um neto bastardo do seu bisavô
+
+
 > Fez amigos, frequentava a Asa Norte
 
 > E ia pra festa de rock, pra se libertar
