@@ -36,3 +36,11 @@
 > Sentia que aquilo ali não era o seu lugar
 
 
+> Fez amigos, frequentava a Asa Norte
+
+>E ia pra festa de rock, pra se libertar
+
+> Mas de repente Sob uma má influência dos boyzinho da cidade
+
+> Começou a roubar
+
