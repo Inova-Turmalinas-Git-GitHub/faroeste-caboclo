@@ -17,3 +17,11 @@
 
 > E na escola até o professor com ele aprendeu
 
+
+> Comia todas as menininhas da cidade
+
+> De tanto brincar de médico, aos doze era professor
+
+> Aos quinze, foi mandado pro o reformatório
+
+> Onde aumentou seu ódio diante de tanto terror
