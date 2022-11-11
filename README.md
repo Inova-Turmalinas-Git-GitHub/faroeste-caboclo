@@ -52,4 +52,11 @@
 > E um filho com você eu quero ter
 
 
+> Sentindo o sangue na garganta
+
+> João olhou pras bandeirinhas e pro povo a aplaudir
+
+> E olhou pro sorveteiro e pras câmeras e
+
+> A gente da TV que filmava tudo ali
 
