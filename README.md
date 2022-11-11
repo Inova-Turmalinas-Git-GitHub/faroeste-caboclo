@@ -17,3 +17,11 @@
 
 > E na escola até o professor com ele aprendeu
 
+
+> Ele queria sair para ver o mar
+
+> E as coisas que ele via na televisão
+
+> Juntou dinheiro para poder viajar
+
+> De escolha própria, escolheu a solidão
