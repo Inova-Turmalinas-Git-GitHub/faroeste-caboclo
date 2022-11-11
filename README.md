@@ -43,3 +43,5 @@
 > Aos quinze, foi mandado pro o reformatório
 
 > Onde aumentou seu ódio diante de tanto terror
+
+> Sofrer
