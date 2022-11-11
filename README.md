@@ -81,8 +81,6 @@
 > A gente da TV que filmava tudo ali
 
 
-> Sofrer
-
 > E João não conseguiu o que queria
 
 > Quando veio pra Brasília, com o diabo ter
@@ -91,4 +89,5 @@
 
 > Pra ajudar toda essa gente que só faz
 
+> Sofrer
 
