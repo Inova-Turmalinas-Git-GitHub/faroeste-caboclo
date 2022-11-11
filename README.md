@@ -45,6 +45,15 @@
 > Onde aumentou seu ódio diante de tanto terror
 
 
+> Não entendia como a vida funcionava
+
+> Discriminação por causa da sua classe e sua cor
+
+> Ficou cansado de tentar achar resposta
+
+> E comprou uma passagem, foi direto a Salvador
+
+
 > E lá chegando, foi tomar um cafezinho
 
 > E encontrou um boiadeiro, com quem foi falar
