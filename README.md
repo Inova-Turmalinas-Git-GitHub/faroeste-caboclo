@@ -13,9 +13,18 @@
 
 > Ainda mais quando com um tiro de soldado o pai morreu
 
-> Era o terror da sertania onde morava
+> Era o terror da sertania onde morava.
 
 > E na escola até o professor com ele aprendeu
+
+
+> Ele queria sair para ver o mar
+
+> E as coisas que ele via na televisão
+
+> Juntou dinheiro para poder viajar
+
+> De escolha própria, escolheu a solidão
 
 
 > Ia pra igreja só prá roubar o dinheiro
@@ -25,4 +34,5 @@
 > Sentia mesmo que era mesmo diferente
 
 > Sentia que aquilo ali não era o seu lugar
+
 
