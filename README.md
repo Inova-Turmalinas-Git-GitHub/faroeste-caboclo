@@ -42,4 +42,14 @@
 
 > Aos quinze, foi mandado pro o reformatório
 
-> Onde aumentou seu ódio diante de tanto terror
+
+> Ele dizia que queria se casar
+
+> E carpinteiro ele voltou a ser
+
+> Maria Lúcia pra sempre vou te amar
+
+> E um filho com você eu quero ter
+
+
+
