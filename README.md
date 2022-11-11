@@ -54,6 +54,15 @@
 > Até um neto bastardo do seu bisavô
 
 
+> E lá chegando, foi tomar um cafezinho
+
+> E encontrou um boiadeiro, com quem foi falar
+
+> E o boiadeiro tinha uma passagem e ia perder a viagem
+
+> Mas João foi lhe salvar
+
+
 > Fez amigos, frequentava a Asa Norte
 
 > E ia pra festa de rock, pra se libertar
