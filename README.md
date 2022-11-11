@@ -54,6 +54,24 @@
 > E comprou uma passagem, foi direto a Salvador
 
 
+> E lá chegando, foi tomar um cafezinho
+
+> E encontrou um boiadeiro, com quem foi falar
+
+> E o boiadeiro tinha uma passagem e ia perder a viagem
+
+> Mas João foi lhe salvar
+
+
+> Fez amigos, frequentava a Asa Norte
+
+> E ia pra festa de rock, pra se libertar
+
+> Mas de repente Sob uma má influência dos boyzinho da cidade
+
+> Começou a roubar
+
+
 > Ele dizia que queria se casar
 
 > E carpinteiro ele voltou a ser
