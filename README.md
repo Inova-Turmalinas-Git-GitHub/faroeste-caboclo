@@ -36,3 +36,11 @@
 > Sentia que aquilo ali não era o seu lugar
 
 
+> Ele dizia que queria se casar
+
+> E carpinteiro ele voltou a ser
+
+> Maria Lúcia pra sempre vou te amar
+
+> E um filho com você eu quero ter
+
