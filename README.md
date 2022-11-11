@@ -45,6 +45,15 @@
 > Onde aumentou seu ódio diante de tanto terror
 
 
+> Na sexta-feira ia pra zona da cidade
+
+> Gastar todo o seu dinheiro de rapaz trabalhador
+
+> E conhecia muita gente interessante
+
+> Até um neto bastardo do seu bisavô
+
+
 > E lá chegando, foi tomar um cafezinho
 
 > E encontrou um boiadeiro, com quem foi falar
@@ -80,6 +89,14 @@
 
 > A gente da TV que filmava tudo ali
 
+
+> E João não conseguiu o que queria
+
+> Quando veio pra Brasília, com o diabo ter
+
+> Ele queria era falar pro presidente
+
+> Pra ajudar toda essa gente que só faz
 
 > Sofrer
 
