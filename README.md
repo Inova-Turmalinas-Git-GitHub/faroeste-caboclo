@@ -18,15 +18,6 @@
 > E na escola até o professor com ele aprendeu
 
 
-> Ele queria sair para ver o mar
-
-> E as coisas que ele via na televisão
-
-> Juntou dinheiro para poder viajar
-
-> De escolha própria, escolheu a solidão
-
-
 > Ia pra igreja só prá roubar o dinheiro
 
 > Que as velhinhas colocavam na caixinha do altar.
@@ -36,6 +27,22 @@
 > Sentia que aquilo ali não era o seu lugar
 
 
+> Ele queria sair para ver o mar
+
+> E as coisas que ele via na televisão
+
+> Juntou dinheiro para poder viajar
+
+> De escolha própria, escolheu a solidão
+
+
+> Comia todas as menininhas da cidade
+
+> De tanto brincar de médico, aos doze era professor
+
+> Aos quinze, foi mandado pro o reformatório
+
+
 > Ele dizia que queria se casar
 
 > E carpinteiro ele voltou a ser
@@ -43,4 +50,6 @@
 > Maria Lúcia pra sempre vou te amar
 
 > E um filho com você eu quero ter
+
+
 
