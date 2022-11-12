@@ -72,6 +72,15 @@
 > Começou a roubar
 
 
+> Já no primeiro roubo ele dançou
+
+> E pro inferno ele foi pela primeira vez
+
+> Violência e estupro do seu corpo
+
+> Vocês vão ver, eu vou pegar vocês
+
+
 > Ele dizia que queria se casar
 
 > E carpinteiro ele voltou a ser
