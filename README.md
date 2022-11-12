@@ -90,9 +90,6 @@
 > Que um negócio ele ia começar
 
 
-> Sofrer
-
-
 > Um peruano que vivia na Bolívia
 
 > E muitas coisas trazia de lá
@@ -101,3 +98,5 @@
 
 > Que um negócio ele ia começar
 
+
+> Sofrer
