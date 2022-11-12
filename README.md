@@ -92,3 +92,12 @@
 
 > Sofrer
 
+
+> Um peruano que vivia na Bolívia
+
+> E muitas coisas trazia de lá
+
+> Seu nome era Pablo e ele dizia
+
+> Que um negócio ele ia começar
+
