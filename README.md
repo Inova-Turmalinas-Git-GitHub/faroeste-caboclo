@@ -72,8 +72,6 @@
 > A gente da TV que filmava tudo ali
 
 
-> Sofrer
-
 > E João não conseguiu o que queria
 
 > Quando veio pra Brasília, com o diabo ter
@@ -90,3 +88,16 @@
 > Essas palavras vão entrar no coração
 
 > Eu vou sofrer as consequências como um cão"
+
+
+> Um peruano que vivia na Bolívia
+
+> E muitas coisas trazia de lá
+
+> Seu nome era Pablo e ele dizia
+
+> Que um negócio ele ia começar
+
+
+> Sofrer
+
