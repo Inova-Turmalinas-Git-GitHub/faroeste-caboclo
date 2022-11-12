@@ -90,5 +90,14 @@
 > Que um negócio ele ia começar
 
 
+> E o Santo Cristo até a morte trabalhava
+
+> Mas o dinheiro não dava pra ele se alimentar
+
+> E ouvia às sete horas o noticiário
+
+> Que sempre dizia que o seu ministro ia ajudar
+
+
 > Sofrer
 
