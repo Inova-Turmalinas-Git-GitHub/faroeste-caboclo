@@ -90,8 +90,6 @@
 > A gente da TV que filmava tudo ali
 
 
-> Sofrer
-
 > E João não conseguiu o que queria
 
 > Quando veio pra Brasília, com o diabo ter
@@ -101,6 +99,18 @@
 > Pra ajudar toda essa gente que só faz
 
 
+> Um peruano que vivia na Bolívia
+
+> E muitas coisas trazia de lá
+
+> Seu nome era Pablo e ele dizia
+
+> Que um negócio ele ia começar
+
+
+> Sofrer
+
+
 > E João aceitou sua proposta
 
 > E num ônibus entrou no Planalto Central
@@ -108,5 +118,4 @@
 > Ele ficou bestificado com a cidade
 
 > Saindo da rodoviária, viu as luzes de Natal
-
 
