@@ -45,6 +45,24 @@
 > Onde aumentou seu ódio diante de tanto terror
 
 
+> Não entendia como a vida funcionava
+
+> Discriminação por causa da sua classe e sua cor
+
+> Ficou cansado de tentar achar resposta
+
+> E comprou uma passagem, foi direto a Salvador
+
+
+> E lá chegando, foi tomar um cafezinho
+
+> E encontrou um boiadeiro, com quem foi falar
+
+> E o boiadeiro tinha uma passagem e ia perder a viagem
+
+> Mas João foi lhe salvar
+
+
 > Fez amigos, frequentava a Asa Norte
 
 > E ia pra festa de rock, pra se libertar
@@ -91,4 +109,13 @@
 
 
 > Sofrer
+
+
+> E João aceitou sua proposta
+
+> E num ônibus entrou no Planalto Central
+
+> Ele ficou bestificado com a cidade
+
+> Saindo da rodoviária, viu as luzes de Natal
 
